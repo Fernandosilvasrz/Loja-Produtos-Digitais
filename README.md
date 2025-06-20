@@ -1,0 +1,1 @@
+"Loja afiliado Amazon"
